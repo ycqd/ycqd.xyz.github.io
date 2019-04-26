@@ -1,1 +1,0 @@
-# ycqd.xyz.github.io
